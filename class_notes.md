@@ -22,9 +22,17 @@
 * Buchla creation period: 1963 - 65
 * [Trips festival](https://trps.org/2016/01/22/trips-festival-1966-documentary/)
 
-## Class 3: SIlver apples of the moon
+## Class 3: Silver apples of the moon
 * [You are not a gadget: A manifesto - Jaron Lanier](https://www.amazon.com/You-Are-Not-Gadget-Manifesto/dp/0307389979)
 * [Silver Apples of the Moon 1967](https://www.youtube.com/watch?v=EelvKqhu1M4)
 * Terry Riley
 * [Steve Reich](https://en.wikipedia.org/wiki/Steve_Reich)
 * [Len Lye](https://en.wikipedia.org/wiki/Len_Lye)
+
+## Class 4
+* Every music in the 18th century was Newtonina balance
+
+## Class 5
+* Thinking without words?
+
+## Final
